@@ -138,6 +138,18 @@ Pandas can poop up to 40 times a day.
 ───────────────────────────────────────
 Sloths can lose up to one-third of their body weight from one defecation.
 ───────────────────────────────────────
+Lions have terrific night vision. They are 6 times more sensitive to light than humans. This gives them a distinct advantage over some prey species when hunting at night.
+───────────────────────────────────────
+The blue whale's heart is huuuuge! As in, the size of a car; its beat can be detected from two miles away.
+───────────────────────────────────────
+Common Cobra venom is not on the list of top 10 venoms yet it is still 40 times more toxic than cyanide.      
+───────────────────────────────────────
+The most common name given to a pet goldfish is 'Jaws.'
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
 
 ───────────────────────────────────────
 
