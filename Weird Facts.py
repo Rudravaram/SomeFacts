@@ -322,6 +322,8 @@ Oxygen is required for combustion and hydrogen is a flammable gas, but together 
 ───────────────────────────────────────
 The blob of toothpaste that sits on your toothbrush before you brush your teeth is called a nurdle.
 ───────────────────────────────────────
+There are more than 200 dead bodies on Mount Everest.
 
+Climbers use them as landmarks.
 ───────────────────────────────────────
 

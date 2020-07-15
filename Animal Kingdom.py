@@ -136,7 +136,7 @@ Lobsters taste with their feet
 ───────────────────────────────────────
 Pandas can poop up to 40 times a day.
 ───────────────────────────────────────
-
+Sloths can lose up to one-third of their body weight from one defecation.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

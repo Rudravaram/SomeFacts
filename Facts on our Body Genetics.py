@@ -461,9 +461,9 @@ Our mouths produce more saliva before we vomit to protect our teeth from erosion
 
 The acidity in vomit is enough to wear them down.
 ───────────────────────────────────────
-
+Emotional pain lasts for 10 to 20 minutes, anything longer is actually self inflicted by over thinking, making things worse.
 ───────────────────────────────────────
-
+*Laughter has been medically proven to help people lose weight.*
 ───────────────────────────────────────
 
 ───────────────────────────────────────
