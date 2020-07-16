@@ -146,9 +146,9 @@ Common Cobra venom is not on the list of top 10 venoms yet it is still 40 times 
 ───────────────────────────────────────
 The most common name given to a pet goldfish is 'Jaws.'
 ───────────────────────────────────────
-
+A group of scientists recently found an organism related to coral and jellyfish, that doesn't need oxygen to live. It lives in salmon tissue, and could potentially be the last creature to survive on our planet.
 ───────────────────────────────────────
-
+There are about 25 million tons of spiders living on earth.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
