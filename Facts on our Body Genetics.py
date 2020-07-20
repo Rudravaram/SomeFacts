@@ -467,6 +467,24 @@ Emotional pain lasts for 10 to 20 minutes, anything longer is actually self infl
 ───────────────────────────────────────
 Studies show that people who are lonely and/or depressed are more likely to sleep with multiple pillows.
 ───────────────────────────────────────
+Phycology 101 -> Pretending you don’t have feelings of anger, sadness, or loneliness can literally destroy you mentally.
+───────────────────────────────────────
+Crying is good for your health – Flushing unhealthy bacteria out of your body, strengthening the immune system and relieving stress.
+───────────────────────────────────────
+Eating instant noodles 2 to 3 times a week can increase a person's risk of developing heart disease, stroke, and diabetes.
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
 
 ───────────────────────────────────────
 
