@@ -328,7 +328,7 @@ Climbers use them as landmarks.
 ───────────────────────────────────────
 The world's youngest parents were 8 and 9 and lived in China in 1910.      
 ───────────────────────────────────────
-
+Vodka can be used as hair conditioner, to treat jellyfish stings and also makes an effective bug repellent.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
