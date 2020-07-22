@@ -150,7 +150,14 @@ A group of scientists recently found an organism related to coral and jellyfish,
 ───────────────────────────────────────
 There are about 25 million tons of spiders living on earth.
 ───────────────────────────────────────
-
+Ants don't have lungs.
 ───────────────────────────────────────
-
+In 1987, a squirrel carrying a piece of tin foil shut down the NASDAQ stock exchange for 82 minutes, resulting in a loss of about 20 million potential trades.
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
 ───────────────────────────────────────

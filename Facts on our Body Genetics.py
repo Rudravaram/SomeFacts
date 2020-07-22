@@ -473,7 +473,7 @@ Crying is good for your health – Flushing unhealthy bacteria out of your body,
 ───────────────────────────────────────
 Eating instant noodles 2 to 3 times a week can increase a person's risk of developing heart disease, stroke, and diabetes.
 ───────────────────────────────────────
-
+In the next 30 seconds, you will, on average, produce 72 million red blood cells, shed 174,000 skin cells, and have 25 thoughts.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
