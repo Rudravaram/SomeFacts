@@ -154,6 +154,7 @@ Ants don't have lungs.
 ───────────────────────────────────────
 In 1987, a squirrel carrying a piece of tin foil shut down the NASDAQ stock exchange for 82 minutes, resulting in a loss of about 20 million potential trades.
 ───────────────────────────────────────
+If an ant was the same size as us, it would be twice as fast as a Lamborghini.
 ───────────────────────────────────────
 ───────────────────────────────────────
 ───────────────────────────────────────
