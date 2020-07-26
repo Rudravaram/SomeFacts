@@ -156,6 +156,9 @@ In 1987, a squirrel carrying a piece of tin foil shut down the NASDAQ stock exch
 ───────────────────────────────────────
 If an ant was the same size as us, it would be twice as fast as a Lamborghini.
 ───────────────────────────────────────
+A "dead" Egyptian snail was put on display in the British Museum in March 1846.
+
+Four years later, the snail woke up.
 ───────────────────────────────────────
 ───────────────────────────────────────
 ───────────────────────────────────────
