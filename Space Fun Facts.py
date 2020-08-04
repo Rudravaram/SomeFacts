@@ -87,7 +87,7 @@ It would also take the efforts of more than 400,000 conspirators to keep it a se
 ───────────────────────────────────────
 The atmosphere in Titan, Saturn's Moon, is so thick and the gravity so low, that humans can fly through it by flapping "wings" attached to their arms.
 ───────────────────────────────────────
-
+If two pieces of the same type of metal touch in space, they will bond and be permanently stuck together, it's called cold welding.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

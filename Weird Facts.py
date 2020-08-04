@@ -330,9 +330,11 @@ The world's youngest parents were 8 and 9 and lived in China in 1910.
 ───────────────────────────────────────
 Vodka can be used as hair conditioner, to treat jellyfish stings and also makes an effective bug repellent.
 ───────────────────────────────────────
+Starbucks has over 87,000 combinations of possible drinks.
 
+You'd have to consume a new drink every day for more than 238 years to try each one.
 ───────────────────────────────────────
-
+Netflix has smashed the record for most Emmy nominations for any network, studio, or streaming platform with 160 — beating the previous record of 137, set by HBO last year.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

@@ -475,13 +475,13 @@ Eating instant noodles 2 to 3 times a week can increase a person's risk of devel
 ───────────────────────────────────────
 In the next 30 seconds, you will, on average, produce 72 million red blood cells, shed 174,000 skin cells, and have 25 thoughts.
 ───────────────────────────────────────
-
+A cure for headaches: Take a lime, cut it in half, and rub it on your forehead. The throbbing should go away.
 ───────────────────────────────────────
-
+Taking a shower during a lightning storm is not recommended – A lightning strike can be conducted from many miles away through a water pipe.
 ───────────────────────────────────────
-
+Families who turn off the television during meals tend to be healthier.
 ───────────────────────────────────────
-
+The average woman smiles 62 times a day. The average man smiles only 8 times.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
