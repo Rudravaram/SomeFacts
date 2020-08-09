@@ -168,6 +168,7 @@ The snow leopard protects itself from extreme cold when it sleeps by wrapping it
 ───────────────────────────────────────
 There is a snake, called the boomslang, whose venom causes you to bleed out from every orifice on your body. You may even turn blue from internal bleeding, and it can take up to 5 days to die from the bleeding.
 ───────────────────────────────────────
+36 million years ago, penguins were about 6 feet tall & weighed over 250 pounds.
 ───────────────────────────────────────
 ───────────────────────────────────────
 ───────────────────────────────────────

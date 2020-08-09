@@ -483,9 +483,24 @@ Families who turn off the television during meals tend to be healthier.
 ───────────────────────────────────────
 The average woman smiles 62 times a day. The average man smiles only 8 times.
 ───────────────────────────────────────
-
+Playing video games can help reduce your brain's response to physical pain.
 ───────────────────────────────────────
-
+It takes about 7 minutes for the average person to fall asleep.
 ───────────────────────────────────────
-
+80% of people remain quiet even when they really want to say something in order to avoid an argument with someone they care about.
+───────────────────────────────────────
+When experiencing a heartbreak, our brain releases stress hormones, which can weaken our immune system, and leaves our bodies more susceptible to illness.
+───────────────────────────────────────
+Farting can actually help reduce high blood pressure and is beneficial to your health.Sometimes, the only reason why you won't let go of what's making you sad is because it was the only thing that made you happy
+───────────────────────────────────────
+Sometimes, the only reason why you won't let go of what's making you saErotomania: A psychological disorder where a person thinks that somebody with a higher status (such as a celebrity) is in love with them.d is because it was the only thing that made you happy
+───────────────────────────────────────
+Erotomania: A psychological disorder where a person thinks that somebody with a higher status (such as a celebrity) is in love with them.
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
+───────────────────────────────────────
 ───────────────────────────────────────

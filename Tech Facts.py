@@ -36,7 +36,7 @@ You will get better quality pictures from an iPhone if you take the picture and 
 ───────────────────────────────────────
 Apple makes their employees work on fake projects until they can be trusted. 
 ───────────────────────────────────────
-
+92% people type things into ”Google” to see if they spelled them correctly.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

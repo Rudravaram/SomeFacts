@@ -336,6 +336,22 @@ You'd have to consume a new drink every day for more than 238 years to try each 
 ───────────────────────────────────────
 Netflix has smashed the record for most Emmy nominations for any network, studio, or streaming platform with 160 — beating the previous record of 137, set by HBO last year.
 ───────────────────────────────────────
+The world's first speeding ticket was issued to an England motorist on January 28th, 1896.
+
+He was fined for speeding at 8mph in a 2mph zone.
+───────────────────────────────────────
+If half of the UK shifted to reusable water bottles, it would save enough plastic to reach the moon and back in just one year.
+───────────────────────────────────────
+A flame at the Hiroshima Peace Memorial Park has burned since it was lit in 1964.
+
+It will stay lit until all nuclear bombs on the planet are destroyed, and the world is free from the threat of nuclear destruction.
+───────────────────────────────────────
+The song "You're Beautiful" by James Blunt is actually about a guy who's high in a subway station, stalking someone else's girlfriend.
+───────────────────────────────────────
+The English word "minion" comes from the French word "mignon," which means “cute.”
+───────────────────────────────────────
+A 390-year-old bonsai tree survived the bombing of Hiroshima. Later, the tree was gifted to the U.S. and it still lives in Washington, D.C.
+───────────────────────────────────────
 
 ───────────────────────────────────────
 
