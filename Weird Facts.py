@@ -352,7 +352,7 @@ The English word "minion" comes from the French word "mignon," which means “cu
 ───────────────────────────────────────
 A 390-year-old bonsai tree survived the bombing of Hiroshima. Later, the tree was gifted to the U.S. and it still lives in Washington, D.C.
 ───────────────────────────────────────
-
+If you want to buy a car in Japan, you must first prove that you have someplace to park it.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

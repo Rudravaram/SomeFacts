@@ -170,8 +170,15 @@ There is a snake, called the boomslang, whose venom causes you to bleed out from
 ───────────────────────────────────────
 36 million years ago, penguins were about 6 feet tall & weighed over 250 pounds.
 ───────────────────────────────────────
+Elephants are evolving to be tuskless due to decades of poaching.
+
+Usually, less than four percent of female elephants are born without tusks. However, there are currently elephant populations in which 98% of females are born without tusks.
 ───────────────────────────────────────
+The bumblebee was initially called the "humblebee."
 ───────────────────────────────────────
+Bees stop buzzing during an eclipse.
+
+Researchers recorded the buzzing of bees during the 2017 North American eclipse using tiny microphones and found the bees were active until moments before totality. Then they all went silent at the same time.
 ───────────────────────────────────────
 ───────────────────────────────────────
 ───────────────────────────────────────

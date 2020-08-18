@@ -497,6 +497,16 @@ Sometimes, the only reason why you won't let go of what's making you saErotomani
 ───────────────────────────────────────
 Erotomania: A psychological disorder where a person thinks that somebody with a higher status (such as a celebrity) is in love with them.
 ───────────────────────────────────────
+Did you know high blood pressure is the top cause of stroke? Part of your brain starts to die when it doesn’t get enough blood, which can hurt your ability to think, move, speak, and see.
+───────────────────────────────────────
+A protein called CD36 has been discovered in metastatic cancer cells. Research shows that cancer stops spreading if the protein is blocked.
+───────────────────────────────────────
+Your body is the weakest during 3-4am. This is the time most people die in their sleep.
+───────────────────────────────────────
+You can "rewire" your brain to be happy by simply recalling 3 things you're grateful for every day for 21 days.
+───────────────────────────────────────
+Laughter helps increase memory and learning. Incorporating humor into education leads to higher test scores.
+───────────────────────────────────────
 ───────────────────────────────────────
 ───────────────────────────────────────
 ───────────────────────────────────────

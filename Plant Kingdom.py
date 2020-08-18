@@ -20,7 +20,7 @@ In the 1700s, pineapples were very expensive and could cost as much as $8,000.
 
 American colonists would actually rent pineapples and carry them around parties to flaunt their wealth.
 ───────────────────────────────────────
-
+Did you know a serving of two kiwifruit delivers four grams of fiber, as much as a bowl of oatmeal? You’ll get even more fiber if you eat the skin too (yes, the skin is entirely edible!). 
 ───────────────────────────────────────
 
 ───────────────────────────────────────
