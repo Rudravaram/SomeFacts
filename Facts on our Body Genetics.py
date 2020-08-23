@@ -507,8 +507,21 @@ You can "rewire" your brain to be happy by simply recalling 3 things you're grat
 ───────────────────────────────────────
 Laughter helps increase memory and learning. Incorporating humor into education leads to higher test scores.
 ───────────────────────────────────────
+Anxiety that stretches over days, months, or years can take a serious toll on your immune system, making it harder for you to fight the flu, shingles, and other viruses.
 ───────────────────────────────────────
+People are more likely to cry at night because the lack of sleep makes emotions hard to control.
 ───────────────────────────────────────
+Uncontrolled high blood pressure can lead to stroke by damaging and weakening the brain's blood vessels, causing them to narrow, rupture or leak. 
+───────────────────────────────────────
+Waiting is linked to depression. Time spent waiting for something that may never happen can be mentally painful.
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
 ───────────────────────────────────────
 ───────────────────────────────────────
 ───────────────────────────────────────

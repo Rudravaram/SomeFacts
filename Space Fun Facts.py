@@ -89,7 +89,7 @@ The atmosphere in Titan, Saturn's Moon, is so thick and the gravity so low, that
 ───────────────────────────────────────
 If two pieces of the same type of metal touch in space, they will bond and be permanently stuck together, it's called cold welding.
 ───────────────────────────────────────
-
+Jupiter spins right round in less than 10 hours which means that the planet’s surface is moving at nearly 50,000 km/hr.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
