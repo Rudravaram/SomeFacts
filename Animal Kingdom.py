@@ -180,6 +180,59 @@ Bees stop buzzing during an eclipse.
 
 Researchers recorded the buzzing of bees during the 2017 North American eclipse using tiny microphones and found the bees were active until moments before totality. Then they all went silent at the same time.
 ───────────────────────────────────────
+Jellyfish are considered biologically immortal. They don't age and will never die unless they are killed.
 ───────────────────────────────────────
+Elephants are one of the very few land mammals, aside from humans, to mourn the dead and visit their graves.
+
+Most species, including the ones believed to mourn, lose interest in a body after it has decomposed.
 ───────────────────────────────────────
+Dogs experience a chemical explosion in their brains when they see a human carrying a treat for them.
+───────────────────────────────────────
+The heart of a blue whale can weigh more than 1,300 lbs and can be heard beating from 2 miles away.
+───────────────────────────────────────
+Alligators rarely suffer from infections because they have robust immune systems.
+
+Their blood is effective against 23 strains of bacteria, and can even destroy a significant amount of HIV.
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
 ───────────────────────────────────────

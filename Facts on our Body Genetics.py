@@ -515,6 +515,26 @@ Uncontrolled high blood pressure can lead to stroke by damaging and weakening th
 ───────────────────────────────────────
 Waiting is linked to depression. Time spent waiting for something that may never happen can be mentally painful.
 ───────────────────────────────────────
+Coffee HAs been found to reduce skin cancer risk.
+───────────────────────────────────────
+Just 30 minutes of sunshine per day triggers your body.
+
+To release over 200 antimicrobials that fight fungi, parasites and viruses.
+───────────────────────────────────────
+You can't breathe and swallow at the same time
+───────────────────────────────────────
+When you remember a past event, you are actually remembering the last time you remembered it, not the event itself.
+───────────────────────────────────────
+Chocolate ice cream can reduce and relieve mental stress.
+───────────────────────────────────────
+If you breathe carbon monoxide, it can keep your organs from getting the oxygen they need and make you very sick. Symptoms are often like the flu without fever.
+───────────────────────────────────────
+Not making your bed can be safer than making it.
+
+Unmade beds expose dust mites to fresh air and light, dehydrating them and reducing the number of allergens in your bed.
+───────────────────────────────────────
+Only about 2% of the world's population has green eyes.
+───────────────────────────────────────
 
 ───────────────────────────────────────
 
@@ -523,7 +543,29 @@ Waiting is linked to depression. Time spent waiting for something that may never
 ───────────────────────────────────────
 
 ───────────────────────────────────────
+
+───────────────────────────────────────
+
 ───────────────────────────────────────
 ───────────────────────────────────────
+
 ───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
 ───────────────────────────────────────
