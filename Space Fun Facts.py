@@ -95,9 +95,9 @@ The expansion of the universe is accelerating because of "dark energy."
 ───────────────────────────────────────
 Mercury and Venus have no (natural) satellite.
 ───────────────────────────────────────
-
+According to the best estimate of astronomers, 275 Million new stars are born every single day.
 ───────────────────────────────────────
-
+Unprotected exposure to outer space can kill a person in less than 30 seconds.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

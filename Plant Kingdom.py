@@ -22,7 +22,7 @@ American colonists would actually rent pineapples and carry them around parties 
 ───────────────────────────────────────
 Did you know a serving of two kiwifruit delivers four grams of fiber, as much as a bowl of oatmeal? You’ll get even more fiber if you eat the skin too (yes, the skin is entirely edible!). 
 ───────────────────────────────────────
-
+Mushrooms are the only non-animal food with Vitamin D and their vitamin D levels can be increased by placing them in the sun, just like humans.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

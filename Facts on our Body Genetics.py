@@ -535,13 +535,13 @@ Unmade beds expose dust mites to fresh air and light, dehydrating them and reduc
 ───────────────────────────────────────
 Only about 2% of the world's population has green eyes.
 ───────────────────────────────────────
-
+Foreign Accent Syndrome: A brain disorder that causes the sufferer to speak in a foreign accent, involuntarily.
 ───────────────────────────────────────
-
+A NASA study found that while a 15-minute nap might not make you feel physically better, it still boosts cognitive performance.
 ───────────────────────────────────────
-
+Your body craves sugary, salty and fatty foods when you're under a lot of stress.
 ───────────────────────────────────────
-
+Too much stress and high blood pressure can lead to a condition called “hematidrosis” - where a person sweats blood.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

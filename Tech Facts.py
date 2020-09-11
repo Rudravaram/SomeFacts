@@ -38,9 +38,9 @@ Apple makes their employees work on fake projects until they can be trusted.
 ───────────────────────────────────────
 92% people type things into ”Google” to see if they spelled them correctly.
 ───────────────────────────────────────
-
+"Percussive maintainance" is the term for hitting a device until it starts working again. 
 ───────────────────────────────────────
-
+The very first Apple logo featured Sir Isaac Newton sitting underneath a tree, with an apple about to hit his head.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
