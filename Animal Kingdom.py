@@ -194,7 +194,7 @@ Alligators rarely suffer from infections because they have robust immune systems
 
 Their blood is effective against 23 strains of bacteria, and can even destroy a significant amount of HIV.
 ───────────────────────────────────────
-
+Worker bees have a very special way of communicating with each other. Foragers perform a 'wag dance' to inform other workers of the direction of the nectar source and its distance. 
 ───────────────────────────────────────
 
 ───────────────────────────────────────
