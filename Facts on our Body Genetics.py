@@ -543,21 +543,25 @@ Your body craves sugary, salty and fatty foods when you're under a lot of stress
 ───────────────────────────────────────
 Too much stress and high blood pressure can lead to a condition called “hematidrosis” - where a person sweats blood.
 ───────────────────────────────────────
+Emotions are quite physical, as different body parts react to different emotions
+───────────────────────────────────────
+Feeling stressed? Taking a deep whiff of lavender or rosemary may put you into a more relaxed state. Inhaling those aromas may lower your levels of the stress hormone cortisol.
+───────────────────────────────────────
+Singing can make you feel less tense and can help relieve anxiety and depression.
+───────────────────────────────────────
+Parasomnia is a sleep disorder that causes involuntary actions and movements during sleep - It's even led to driving, robberies and murder.
+───────────────────────────────────────
+Each of your eyes has a small blind spot in the back of the retina where the optic nerve attaches. You don’t notice the hole in your vision because your eyes work together to fill in each other’s blind spot.
+───────────────────────────────────────
+After Beethoven went deaf, he realized that he could attach a metal rod to his piano and bite down on it while he played, allowing him to hear pitch through the vibrations in his jawbone.
 
+This is called "bone conduction."
+───────────────────────────────────────
+Sunshine has a more significant effect on your mental health than temperature and rain.
+───────────────────────────────────────
+Men and women who listen to similar music tend to be better communicators and have longer lasting relationships.
 ───────────────────────────────────────
 
-───────────────────────────────────────
-───────────────────────────────────────
-
-───────────────────────────────────────
-
-───────────────────────────────────────
-
-───────────────────────────────────────
-
-───────────────────────────────────────
-
-───────────────────────────────────────
 ───────────────────────────────────────
 
 ───────────────────────────────────────

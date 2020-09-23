@@ -99,9 +99,9 @@ According to the best estimate of astronomers, 275 Million new stars are born ev
 ───────────────────────────────────────
 Unprotected exposure to outer space can kill a person in less than 30 seconds.
 ───────────────────────────────────────
-
+The sun Alone contains 99.86% mass of the entire Solar system!
 ───────────────────────────────────────
-
+A collapsed star, known as a neutron star, has the strongest magnetic force of any object in the universe.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

@@ -196,7 +196,9 @@ Their blood is effective against 23 strains of bacteria, and can even destroy a 
 ───────────────────────────────────────
 Worker bees have a very special way of communicating with each other. Foragers perform a 'wag dance' to inform other workers of the direction of the nectar source and its distance. 
 ───────────────────────────────────────
+Scientists discovered that some migrating birds fly continuously for up to 200 days.
 
+They eat and sleep while gliding through the sky.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
