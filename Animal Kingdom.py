@@ -200,7 +200,7 @@ Scientists discovered that some migrating birds fly continuously for up to 200 d
 
 They eat and sleep while gliding through the sky.
 ───────────────────────────────────────
-
+The largest lizard in the world is the Komodo Dragon which reaches up 3 meters, and sometimes even longer than a car.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

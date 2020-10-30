@@ -561,9 +561,11 @@ Sunshine has a more significant effect on your mental health than temperature an
 ───────────────────────────────────────
 Men and women who listen to similar music tend to be better communicators and have longer lasting relationships.
 ───────────────────────────────────────
+Our noses typically become stuffy one nostril at a time because they split their workload.
 
+The nasal cycle alternates between left and right, with one doing the lion's share of the work at any given time.
 ───────────────────────────────────────
-
+Spending more time outdoors can decrease your chances of depression
 ───────────────────────────────────────
 
 ───────────────────────────────────────
