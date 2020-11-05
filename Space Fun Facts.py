@@ -103,9 +103,9 @@ The sun Alone contains 99.86% mass of the entire Solar system!
 ───────────────────────────────────────
 A collapsed star, known as a neutron star, has the strongest magnetic force of any object in the universe.
 ───────────────────────────────────────
-
+The number of H2O molecules in 10 drops of water is equal to the number of all the stars in the observable universe.
 ───────────────────────────────────────
-
+Félicette, the first and only cat to be sent to space by the French in 1963.
 ───────────────────────────────────────
 
 ───────────────────────────────────────

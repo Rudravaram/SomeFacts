@@ -567,9 +567,9 @@ The nasal cycle alternates between left and right, with one doing the lion's sha
 ───────────────────────────────────────
 Spending more time outdoors can decrease your chances of depression
 ───────────────────────────────────────
-
+Vitamin D does not come from the sun; it comes from our skin. Sunlight is the factor that converts cholesterol in our skin to Vitamin D3.
 ───────────────────────────────────────
-
+Eating spicy foods can boost your metabolism and cause your body to burn more fat.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
