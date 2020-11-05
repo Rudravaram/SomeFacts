@@ -30,7 +30,7 @@ Roads in Japan are being built with grooves cut in them so that if cars drive ov
 A 390-year-old bonsai tree survived the bombing of Hiroshima. Later, the tree was gifted to the U.S. and it still lives in Washington, D.C.
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 If you dip a flower into liquid nitrogen it freezes instantly and becomes so brittle that you can smash it with a hammer.
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━-
 The number of seconds between when you see lightning and hear thunder divided by 5 = how many miles away the lightning is.
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 There’s a superhero called *“Normalman.”* In his world, he is the only person without superpowers on a planet full of superheroes.
@@ -42,10 +42,8 @@ Purple is known as a ‘royal' color because it was the hardest dye to extract �
 High heels were originally for men. They first came into fashion during the 10th century, but were intended for men. It wasn’t until the 18th century that more women wore high heels.
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 Pearls melt in vinegar.
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 Barbie's full name is "Babara Millicent Roberts."
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
-It's illegal in many countries to perform surgical procedures on an octopus without anesthesia due to their intelligence.
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 In 1984, New Zealand's Prime Minister Robert Muldoon got drunk and spontaneously called for a general election - he lost.
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
@@ -358,11 +356,17 @@ January is named after the Roman god Janus. Janus was a temple god who could loo
 ───────────────────────────────────────
 The amount of water beneath our ground soil is 50 times as much as all the water in the rivers and lakes combined.
 ───────────────────────────────────────
-
+Africa is the second-largest continent in the world both in size and population.
 ───────────────────────────────────────
-
+Islam is the dominant religion in Africa. Christianity is the second. Arabic is also the most widely-spoken language in Africa.
 ───────────────────────────────────────
-
+Africa has the shortest coastline despite being the second largest continent in the world.
+───────────────────────────────────────
+More than 50% of the world's French-speaking population lives in Africa.
+───────────────────────────────────────
+The loss of interest and enjoyment in all activities that you once liked or the feeling of not caring anymore is called as 'Anhedonia'.
+───────────────────────────────────────
+The amount of water beneath our ground soil is 50 times as much as all the water in the rivers and lakes combined.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
