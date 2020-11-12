@@ -571,6 +571,22 @@ Vitamin D does not come from the sun; it comes from our skin. Sunlight is the fa
 ───────────────────────────────────────
 Eating spicy foods can boost your metabolism and cause your body to burn more fat.
 ───────────────────────────────────────
+Apples are more efficient at waking you up in the morning than caffeine.
+───────────────────────────────────────
+People who stay up late are more likely to be late to events, regardless of how conscientious or responsible they are.
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
+
+───────────────────────────────────────
 
 ───────────────────────────────────────
 
