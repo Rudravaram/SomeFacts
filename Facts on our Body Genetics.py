@@ -575,9 +575,9 @@ Apples are more efficient at waking you up in the morning than caffeine.
 ───────────────────────────────────────
 People who stay up late are more likely to be late to events, regardless of how conscientious or responsible they are.
 ───────────────────────────────────────
-
+Your height is usually determined by your father. Intelligence, emotional strength and body shape is determined by the mother.
 ───────────────────────────────────────
-
+A protein called CD36 has been discovered in metastatic cancer cells. Research shows that cancer stops spreading if the protein is blocked.
 ───────────────────────────────────────
 
 ───────────────────────────────────────
